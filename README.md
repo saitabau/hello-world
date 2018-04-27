@@ -1,2 +1,6 @@
 # hello-world
 first hello on github
+i like music and music production ...
+oh and coding ..
+am an addict of those two ....
+lol
